@@ -1,2 +1,2 @@
-# Hey Emily, I hope you have a nice night :)
-# Sleep well and I'll talk to you in the morning
+# This can be a fun  website for the business youre thinking of
+# What do you think about this?
